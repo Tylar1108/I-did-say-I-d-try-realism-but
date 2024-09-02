@@ -5,3 +5,4 @@ hope smt good would happen out of this artwork
 still
 i was trying to revert the guy turning back meme 
 artwork in repository 
+![20240809_222426](https://github.com/user-attachments/assets/7d578866-527d-4326-b377-3295f48a29bc)
